@@ -1,1 +1,1 @@
-[qyapo](https://qyapo.com)
+[QYAPO](https://qyapo.com)
